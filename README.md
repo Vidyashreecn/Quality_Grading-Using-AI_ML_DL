@@ -95,4 +95,4 @@ By following this structured approach, you can effectively develop and deploy a 
 
 
 
-**LinkedIn Profile**: [Akshay G Gouda](https://www.linkedin.com/in/akshay-g-gouda-1bb424202)
+**LinkedIn Profile**: [Vidyashree C N](https://www.linkedin.com/in/vidyashree-c-n-ab2149213)
